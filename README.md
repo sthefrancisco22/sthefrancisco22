@@ -1,4 +1,4 @@
-## ## Boas vindas ao meu perfil 💜
+## Sejam bem vindos ao meu perfil 💜
 Meu nome Sthefany :)
 
 °Sou estudante da Alura
